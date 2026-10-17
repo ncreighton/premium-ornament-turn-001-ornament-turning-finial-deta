@@ -1,0 +1,2 @@
+# premium-ornament-turn-001-ornament-turning-finial-deta
+You're spending hours juggling scattered notes, reference photos, and turning measurements across multiple apps—losing track of your finial designs and craft progress in the chaos. The Ornament Turning &amp; Finial Detail Craft Lab is a unified Notion workspace built specifically for woodturners who demand precision, organization, and creative flow wit
